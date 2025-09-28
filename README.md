@@ -1,7 +1,6 @@
 <p align="center"> <img src="https://i.postimg.cc/gkghnjTn/info.png" alt="malachi he/they be kind c+h okay" width="200" height="400">  </p>
-<p align="center"> <img src="https://i.postimg.cc/rF4SYMnX/tumblr-9274bf58f791d2079c1c52bfc54fc8e6-ab7c49d2-250.webp" alt="Alt Text" width="250" height="85"> </p> 
-<p align="center"> <img src="https://i.postimg.cc/pLY69gFF/cdea0f4add8333a49cbeb81b7ade15cf.jpg" alt="Alt Text" width="25" height="35"> anyone can interact with me, but please expect me to be awkward if we're not close! </p>
-<p align="center"> most of my skins are cosplays, usually of characters from point of no return! <img src="https://i.postimg.cc/3wxnkW7N/9278b6989712402c3196bb8c7115f604.jpg" alt="Alt Text" width="25" height="35"> </p>
-<p align="center"> <img src="https://i.postimg.cc/gkj7wX2N/5b407232c63a615e3b44689c3bf9706f.jpg" alt="Alt Text" width="25" height="35"> speaking of point of no return, please talk to me about that game i love it. </p>
-<p align="center"> even if you're unaware of it i'll be glad to inform you about it! <img src="https://i.postimg.cc/XvtjhS1H/42423af7d5726a64945518eb89b6d9d6-removebg-preview.png" alt="Alt Text" width="25" height="35"> </p>
+<p align="center"> anyone can interact with me, but please expect me to be awkward if we're not close!</p>
+<p align="center"> most of my skins are cosplays, usually of characters from point of no return! </p>
+<p align="center"> speaking of point of no return, please talk to me about that game i love it. </p>
+<p align="center"> even if you're unaware of it i'll be glad to inform you about it! </p>
 <p align="center"> <img src="https://i.postimg.cc/rmz4GkRw/tumblr-00cfa1d7a21485678260c27bdaddb20e-a971828e-250.png" alt="Alt Text" width="45" height="75"> <img src="https://i.postimg.cc/vDw6dxPJ/tumblr-fe41d37bb1df948d0d6182e18ecca0ff-5d14bc6c-250.png" alt="Alt Text" width="45" height="75"> <img src="https://i.postimg.cc/MZvNsPCj/tumblr-e33c80dab0647d6379901a819f298580-eeeb692e-250.png" alt="Alt Text" width="45" height="75"> </p>
