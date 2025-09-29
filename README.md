@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Wakogma)
+<p align="center"> ![](https://komarev.com/ghpvc/?username=Wakogma) </p>
 <p align="center"> <img src="https://i.postimg.cc/FzPHVJ4j/Untitled122-20250929013214.png" alt="Alt Text" width="300" height="600">  </p>
 <p align="center"> anyone can interact with me, but please expect me to be awkward if we're not close. </p>
 <p align="center"> another thing is im more of a listener than a talker. </p>
