@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://i.postimg.cc/gkghnjTn/info.png" alt="malachi he/they be kind c+h okay" width="200" height="400">  </p>
+<p align="center"> <img src="https://i.postimg.cc/gkghnjTn/info.png" alt="malachi he/they be kind c+h okay" width="300" height="600">  </p>
 <p align="center"> anyone can interact with me, but please expect me to be awkward if we're not close!</p>
 <p align="center"> most of my skins are cosplays, usually of characters from point of no return! </p>
 <p align="center"> speaking of point of no return, please talk to me about that game i love it. </p>
