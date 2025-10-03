@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Wakogma&color=c47b1e)
+![](https://komarev.com/ghpvc/?username=Wakogma&color=d07a26)
 
 <img align="left" width="200" height="300" src="https://i.postimg.cc/xCY2jpZS/Commando-Full-Art.png/100/100"> hhhh redoing this... everyone refresh so i can hit a thousand github profile views </p>
 
