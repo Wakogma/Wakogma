@@ -12,9 +12,9 @@ point of no return selfship timers: [me x dealer](https://www.tickcounter.com/co
 
 
 
+https://github.com/user-attachments/assets/e95f15c5-7c57-45df-87d1-3fad052ee622
 
 
 
 
-https://github.com/user-attachments/assets/0641cb71-cb6a-4196-b3b5-c53c35a48219
 
