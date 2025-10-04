@@ -1,6 +1,6 @@
-![](https://komarev.com/ghpvc/?username=Wakogma&color=d07a26) everyone refresh so i can hit a thousand github profile views
+![](https://komarev.com/ghpvc/?username=Wakogma&color=d07a26)
 
-<img align="left" width="200" height="300" src="https://i.postimg.cc/xCY2jpZS/Commando-Full-Art.png/100/100">  art shown here is from untitled risk of rain fighting game </p>
+<img align="left" width="200" height="300" src="https://i.postimg.cc/xCY2jpZS/Commando-Full-Art.png/100/100">  everyone refresh so i can hit a thousand github profile views </p>
 
 my name is malachi he/him im an inventor of technology. ask to c+h if we're not friends
 
