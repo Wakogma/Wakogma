@@ -2,7 +2,7 @@
 
 <img align="left" width="200" height="300" src="https://i.postimg.cc/xCY2jpZS/Commando-Full-Art.png/100/100">  everyone refresh so i can hit a thousand github profile views </p>
 
-my name is malachi he/him im an inventor of technology. ask to c+h if we're not friends
+my name is malachi he/him. ask to c+h if we're not friends
 
 note that i am more of a listener than a talker
 
