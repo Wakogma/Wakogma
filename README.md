@@ -11,9 +11,5 @@ i adore point of no return among other things, heavily fixated on point of no re
 point of no return selfship timers: [me x dealer](https://www.tickcounter.com/countup/464876/malachi-x-dealer-for) , [me x mr. wick](https://www.tickcounter.com/countup/464879/malachi-x-mr-wick-for) , [me x ROY](https://www.tickcounter.com/countup/464877/malachi-x-roy-for)
 
 
-https://github.com/user-attachments/assets/e95f15c5-7c57-45df-87d1-3fad052ee622
-
-
-
 
 
