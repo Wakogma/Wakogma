@@ -2,7 +2,7 @@
 
 Sign my [atabook](https://famine.atabook.org/)
 
-C+H is fine and encouraged :]
+C+H is fine and encouraged :] but if im with friends, i'd rather you ask beforehand
 
 Public chat is disabled most of the time as well as whispers. If you still want to talk to me, you can do so on my atabook! I never bite.
 
