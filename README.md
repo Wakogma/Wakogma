@@ -1,6 +1,6 @@
-<img align="left" width="300" height="400" src="https://i.postimg.cc/KYQZC7N9/Thankyouforplaying.png/100/100">   </p> ✎ it's no big deal, i'm not going to cry.
+<img align="left" width="300" height="400" src="https://i.postimg.cc/KYQZC7N9/Thankyouforplaying.png/100/100">   </p>
 
-Sign my [atabook](https://famine.atabook.org/)
+✎ Sign my [atabook](https://famine.atabook.org/)
 
 C+H is fine and encouraged :] but if im with friends, i'd rather you ask beforehand
 
