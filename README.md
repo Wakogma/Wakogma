@@ -2,9 +2,9 @@
 
 ✎ Sign my [atabook](https://famine.atabook.org/)
 
-C+H is fine and encouraged :] but if im with friends, i'd rather you ask beforehand
+C+H is fine and encouraged :] but if i'm with friends, ask first.
 
-I mainly like point of no return (roblox), mindhack and reverse 1999!
+I like point of no return (roblox), mindhack and reverse 1999!
 
 Public chat is disabled most of the time as well as whispers. If you still want to talk to me, you can do so on my atabook! I never bite.
 
