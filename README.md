@@ -1,4 +1,4 @@
-<img align="left" width="240" height="340" src="https://i.postimg.cc/KYQZC7N9/Thankyouforplaying.png/100/100">   </p>
+<img align="center" width="150" height="140" src="https://i.postimg.cc/KYQZC7N9/Thankyouforplaying.png/100/100">   </p>
 
 ✎ Sign my [atabook](https://famine.atabook.org/)
 
