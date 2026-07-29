@@ -8,4 +8,4 @@ I like point of no return (roblox), mindhack and reverse 1999!
 
 Public chat is disabled most of the time as well as whispers. If you still want to talk to me, you can do so on my atabook! I never bite.
 
-point of no return selfship timers: [me x dealer](https://www.tickcounter.com/countup/464876/malachi-x-dealer-for) , [me x mr. wick](https://www.tickcounter.com/countup/464879/malachi-x-mr-wick-for) , [me x ROY](https://www.tickcounter.com/countup/464877/malachi-x-roy-for)
+point of no return selfship timers: [me x dealer](https://www.tickcounter.com/countup/464876/malachi-x-dealer-for) , [me x mr. wick](https://www.tickcounter.com/countup/464879/malachi-x-mr-wick-for) , [me x ROY](https://www.tickcounter.com/countup/464877/malachi-x-roy-for). Love all of them dearly, they infest my brain like parasites.
