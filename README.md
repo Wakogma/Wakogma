@@ -4,7 +4,7 @@
 
 C+H is fine and encouraged :] but if i'm with friends, ask first.
 
-I like point of no return (roblox), mindhack and reverse 1999!
+Love point of no return (roblox), mindhack and reverse 1999
 
 Public chat is disabled most of the time as well as whispers. If you still want to talk to me, you can do so on my atabook! I never bite.
 
