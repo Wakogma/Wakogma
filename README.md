@@ -1,8 +1,6 @@
-<img align="center" width="150" height="140" src="https://i.postimg.cc/KYQZC7N9/Thankyouforplaying.png/100/100">   </p>
+<img align="center" width="150" height="140" src="https://i.postimg.cc/XYJHQ2LM/4907c6863550b19fcf8a2f7729b2c39e.jpg/100/100">   </p>
 
 ✎ Sign my [atabook](https://malachi.atabook.org)
-
-C+H is fine and encouraged :] but if i'm with friends, ask first.
 
 Love point of no return (roblox), mindhack and reverse 1999
 
