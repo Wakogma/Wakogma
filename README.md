@@ -5,11 +5,13 @@
 
   
  </summary>
-  <sub>although I do prefer solitude, don't let this discourage you from saying hi or sitting next to me.</sub>
+  <sub> i tend to lean on the solitary side, however i never</sub>
   
-  <sup>I do not bite whatsoever! I am quite a patient person. uhhh let me write more later</sup>
-
-  <sup> usually public chat's disabled, sometimes whispers too. best way to talk with me is via atabook</sup>
+  <sup> mind being approached or sat next to. w2i > pub</sup>
+ 
+  <sub> i dont bite. but if you want to be friends, do expect the</sub>
+  
+  <sup>occasional teasing, but also compliments and sincerity </sup>
 </details>
 <details>
 <summary>$\color{#d7b9af}{\textsf{click for interests}}$ $\color{#88948d}{\textsf{  ☘︎ ݁˖ }}$</summary>
