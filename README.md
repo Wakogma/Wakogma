@@ -9,9 +9,9 @@
   
 <sup> mind being approached or sat next to. w2i > pub</sup>
 
-<sub> i dont bite. but if you want to be friends, do expect the</sub>
+<sub> i dont bite. but if you want to be friends, expect some</sub>
 
-<sup>occasional teasing, but also compliments and sincerity </sup>
+<sup>teasing, but also compliments, respect and sincerity </sup>
 </details>
 <details>
 <summary>$\color{#d7b9af}{\textsf{click for interests}}$ $\color{#88948d}{\textsf{  ☘︎ ݁˖ }}$</summary>
