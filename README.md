@@ -9,7 +9,7 @@
   
 <sup> mind being approached or sat next to. w2i > pub</sup>
 
-<sub> i dont bite. but if you want to be friends, do expect the</sub>
+<sup> i dont bite. but if you want to be friends, do expect the</sup>
 
 <sup>occasional teasing, but also compliments and sincerity </sup>
 </details>
@@ -25,3 +25,5 @@
 </details>
 ꒰ <img align="center" width="120" height="80" src="https://i.postimg.cc/wMtWdjgY/virizony.png/100/100"> ꒱  ⠀ ⠀<ruby><a href="https://malachi.atabook.org">atabook  </a><rt> . 𓏬 sign my ݄*  </rt></ruby>  💮
 </table>
+
+I am a believer in kindness and growth. Everyone can change for the better!
