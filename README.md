@@ -9,7 +9,7 @@
   
 <sup> mind being approached or sat next to. w2i > pub</sup>
 
-<sup> i dont bite. but if you want to be friends, do expect the</sup>
+<sub> i dont bite. but if you want to be friends, do expect the</sub>
 
 <sup>occasional teasing, but also compliments and sincerity </sup>
 </details>
