@@ -16,7 +16,7 @@
   
   <sup>games: Mindhack, Reverse 1999, Darkest Dungeon, PMD</sup>
    
-  <sup>And One, Chemlab, Modest Mouse, FOB</sup>
+  <sup>music: And One, Chemlab, Modest Mouse, FOB</sup>
 
 <sup>shows/film: TBA</sup>
 
