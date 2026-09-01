@@ -5,13 +5,13 @@
 
   
  </summary>
-  <sub> i tend to lean on the solitary side, however i never</sub>
+ <sub> i tend to lean on the solitary side, however i never</sub>
   
-  <sup> mind being approached or sat next to. w2i > pub</sup>
- 
-  <sub> i dont bite. but if you want to be friends, do expect the</sub>
-  
-  <sup>occasional teasing, but also compliments and sincerity </sup>
+<sup> mind being approached or sat next to. w2i > pub</sup>
+
+<sub> i dont bite. but if you want to be friends, do expect the</sub>
+
+<sup>occasional teasing, but also compliments and sincerity </sup>
 </details>
 <details>
 <summary>$\color{#d7b9af}{\textsf{click for interests}}$ $\color{#88948d}{\textsf{  ☘︎ ݁˖ }}$</summary>
