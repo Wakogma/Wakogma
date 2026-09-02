@@ -13,7 +13,7 @@
 <details>
 <summary>$\color{#d7b9af}{\textsf{click for interests (WIP)}}$ $\color{#88948d}{\textsf{  ☘︎ ݁˖ }}$</summary>
   
-  <sup>games: Mindhack, Reverse 1999, Darkest Dungeon, PMD</sup>
+  <sup>games: Darkest Dungeon, Mindhack, PMD, Reverse 1999</sup>
    
   <sup>music: And One, Chemlab, Modest Mouse, Oingo Boingo</sup>
 
