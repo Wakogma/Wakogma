@@ -5,9 +5,9 @@
 
   
  </summary>
- <sub>check back later but know im nice so don't be</sub>
+ <sub>check back later but im nice so don't be approach</sub>
   
-<sup>afraid to approach. i like when ppl sit next to me</sup>
+<sup>or sit with me. let's treat each other with respect</sup>
 
 </details>
 <details>
