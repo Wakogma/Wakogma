@@ -9,9 +9,9 @@
   
 <sup>approach or sit with me. Let's treat each other with respect 👍</sup>
 
-<sub> I enjoy joking & messing around, but am against treating ppl's</sub>
+<sub> I enjoy joking & messing around, but am against treating</sub>
 
-<sup> insecurities or secrets as a form of entertainment. Write more l8r </sup>
+<sup>ppl's insecurities or secrets as a form of entertainment. </sup>
 
 </details>
 <details>
