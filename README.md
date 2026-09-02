@@ -7,7 +7,7 @@
  </summary>
  <sub>check back later but know im nice so don't be</sub>
   
-<sup>afraid to approach me at all :)</sup>
+<sup>afraid to approach. i like when ppl sit next to me</sup>
 
 </details>
 <details>
