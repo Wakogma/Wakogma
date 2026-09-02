@@ -11,7 +11,7 @@
 
 <sub> I enjoy joking & messing around, but am against treating ppl's</sub>
 
-<sup> insecurities or secrets as a form of entertainment. </sup>
+<sup> insecurities or secrets as a form of entertainment. Write more l8r </sup>
 
 </details>
 <details>
