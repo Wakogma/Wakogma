@@ -5,9 +5,13 @@
 
   
  </summary>
- <sub>i like solitude and chatting, im chillaxed so don't be scared to</sub>
+ <sub>I like solitude and chatting, I'm chillaxed so don't be scared to</sub>
   
 <sup>approach or sit with me. Let's treat each other with respect 👍</sup>
+
+<sub> I enjoy joking & messing around, but am against treating ppl's</sub>
+
+<sup> insecurities or secrets as a form of entertainment. </sup>
 
 </details>
 <details>
