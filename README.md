@@ -5,9 +5,9 @@
 
   
  </summary>
- <sub>check back later but im nice so don't be approach</sub>
+ <sub>i like solitude and chatting, im nice so don't be scared to</sub>
   
-<sup>or sit with me. let's treat each other with respect</sup>
+<sup>approach or sit with me. Let's treat each other with respect 👍</sup>
 
 </details>
 <details>
