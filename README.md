@@ -24,5 +24,5 @@
 <sup>shows/film: TBA</sup>
 
 </details>
-꒰ <img align="center" width="120" height="80" src="https://i.postimg.cc/wMtWdjgY/virizony.png/100/100"> ꒱  ⠀ ⠀<ruby><a href="https://malachi.atabook.org">atabook  </a><rt> . 𓏬 sign my ݄*  </rt></ruby>  🌵
+꒰ <img align="center" width="120" height="80" src="https://i.postimg.cc/X73g6C3h/0be5b82519fe078e9c684998be06c893.jpg/100/100"> ꒱  ⠀ ⠀<ruby><a href="https://malachi.atabook.org">atabook  </a><rt> . 𓏬 sign my ݄*  </rt></ruby>  🌵
 </table>
