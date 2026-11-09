@@ -1,5 +1,5 @@
 <table width="270"><tr><td align="justify">
-  <ruby> . 🍃 ⠀Leper ⠀𓏼 $\color{#8a9392}{\textsf{❁ ‿}}$<rt>he/him ꒰   c+h ok ✓ </rt></ruby>
+  <ruby> . 🍃 ⠀Leper ⠀𓏼 $\color{#8a9392}{\textsf{❁ 𓂃}}$<rt>he/him ꒰   c+h ok ✓ </rt></ruby>
 <img align="center" width="140" height="140" src="https://i.postimg.cc/SQLWdx8r/fbfa9f4ff0c1bd0f36be08ec71e3b65c.jpg/100/100">
 <details><summary>$\color{#8da895}{\textsf{click for info...}}$ $\color{#c3c7c5}{\textsf{‎ ‎ 𓈒 ‎. ⑅ }}$
 
