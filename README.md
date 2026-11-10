@@ -9,7 +9,7 @@
 
 </details>
 <details>
-<summary>$\color{#4d5a49}{\textsf{click for interests...}}$ $\color{#88948d}{\textsf{  ☘︎ ݁˖ }}$</summary>
+<summary>$\color{#4d5a49}{\textsf{click for interests...}}$ $\color{#88948d}{\textsf{  ☘︎ ݁ ˖ }}$</summary>
   
   <sup>to be worked on</sup>
 
