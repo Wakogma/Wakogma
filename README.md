@@ -1,7 +1,7 @@
 <table width="270"><tr><td align="justify">
   <ruby> . 🦊 ⠀Leper ⠀𓏼 $\color{#8a9392}{\textsf{❁ 𓂃}}$<rt>he/him ꒰   c+h ok ✓ </rt></ruby>
 <img align="center" width="140" height="140" src="https://i.postimg.cc/nLJrj8MT/c30a07b700809f42049d13b66da93e9b.jpg/100/100">
-<details><summary>$\color{#e1692d}{\textsf{click for info...}}$ $\color{#c3c7c5}{\textsf{‎ ‎ 𓈒 ‎. ⑅ }}$
+<details><summary>$\color{#e1692d}{\textsf{click for info...}}$ ‎ 𓈒 ‎. ⑅ 
 
   
  </summary>
@@ -9,7 +9,7 @@
 
 </details>
 <details>
-<summary>$\color{#c65731}{\textsf{click for interests...}}$ $\color{#88948d}{\textsf{  ☘︎ ݁ ˖ }}$</summary>
+<summary>$\color{#c65731}{\textsf{click for interests...}}$  ☘︎ ݁ ˖ </summary>
   
   <sup>to be worked on</sup>
 
